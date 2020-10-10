@@ -1,1 +1,1 @@
-# MyAwesomePortfolio
+# MyAwesomePortfolio in this portfolio is my basic layout for my furture projects. i hope you see this portfolio change as time goes by annd i get better at using more languages. 
